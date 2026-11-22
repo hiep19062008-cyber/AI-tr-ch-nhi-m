@@ -1,1 +1,1 @@
-# AI-tr-ch-nhi-m
+AI trách nhiệm
